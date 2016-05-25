@@ -159,7 +159,7 @@ heitsgesetz. Eines davon ist Bayern.
 
 In Bayern hat es seit 2001 sieben parlamentarische Initiativen für ein Gesetz ge-
 geben. Ein Gesetzentwurf der Freien Wähler ist im Sommer 2010 wie alle anderen
-zuvor am Widerstand der CSU gescheitert. Der Regierungspartner FDP, Mitglied im
+zuvor am Widerstand der CSU gescheitert. Der ehemaliger Regierungspartner FDP, Mitglied im
 Bündnis Informationsfreiheit für Bayern, musste sich hier nach eigenen Angaben
 entgegen ihrer Überzeugung dem Negativ-Votum beugen.
 
